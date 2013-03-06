@@ -27,6 +27,6 @@ You have an extra bed to host a friendly french guy for one night ? Contact me :
 
 ## Attending
 - Julien from France
-- Shawn mcCool
+- Shawn McCool
 - Jeroen Gerits
 - Dries Vints
