@@ -31,3 +31,4 @@ You have an extra bed to host a friendly french guy for one night ? Contact me :
 - Jeroen Gerits
 - Dries Vints
 - Frank de Jonge
+- Laurent van Dommelen
