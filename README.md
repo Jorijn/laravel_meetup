@@ -9,8 +9,7 @@ Contact: Jeroen Gerits (@jeroengerits / Mobile 06 141 302 75)
 ## What is the plan:
 
 - 18:30   Meet at Amsterdam Central Station
-- 19:00   Eat some food in a restaurant
-- 20:00   Drink some drinks in a bar
+- This is a pretty big meetup. You guys have any suggestions?
 
 This specific meetup is a great place to brainstorm and discuss about Laracon Amsterdam 2013.
 
