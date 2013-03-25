@@ -39,4 +39,4 @@ You have an extra bed to host a friendly french guy for one night ? Contact me :
 - Rob Meijer
 - Nick Spelt
 - Roj Vroemen
-- Jorijn
+- Jorijn Schrijvershof
