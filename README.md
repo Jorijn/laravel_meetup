@@ -34,6 +34,7 @@ You have an extra bed to host a friendly french guy for one night ? Contact me :
 - Cees van Egmond
 - Dave Clayton
 - Jack Hage
+- N0xie 
 - Harm-Jan Hazelhorst
 - Rob Meijer
 - Nick Spelt
