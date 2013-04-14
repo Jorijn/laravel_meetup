@@ -29,7 +29,6 @@ You have an extra bed to host a friendly french guy for one night ? Contact me :
 - Shawn McCool
 - Jeroen Gerits
 - Dries Vints
-- Frank de Jonge
 - Laurent van Dommelen
 - Cees van Egmond
 - Dave Clayton
