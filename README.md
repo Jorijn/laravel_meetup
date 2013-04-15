@@ -32,7 +32,7 @@ You have an extra bed to host a friendly french guy for one night ? Contact me :
 - Frank de Jonge
 - Laurent van Dommelen
 - Cees van Egmond
-- Dave Clayton
+~~- Dave Clayton~~ 
 - Jack Hage
 - N0xie 
 - Harm-Jan Hazelhorst
