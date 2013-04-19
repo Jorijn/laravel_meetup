@@ -8,8 +8,7 @@ Contact: Jeroen Gerits (@jeroengerits / Mobile 06 141 302 75)
 
 ## What is the plan:
 
-- 18:30   Meet at Amsterdam Central Station
-- 19:00   Having some drinks
+- 19:00   gather at Hanneke's Boom (Dijksgracht 4 : http://goo.gl/maps/Y7w7L)
 - 20:00   I reserved dinner for +/- 15 people at Hanneke's Boom (Dijksgracht 4 : http://goo.gl/maps/Y7w7L)
 
 This specific meetup is a great place to brainstorm and discuss about Laracon Amsterdam 2013.
