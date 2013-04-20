@@ -31,12 +31,11 @@ You have an extra bed to host a friendly french guy for one night ? Contact me :
 - Dries Vints
 - Laurent van Dommelen
 - Cees van Egmond
-- ~~Dave Clayton~~ 
+- ~~Dave Clayton~~
 - Jack Hage
 - ~~N0xie~~
 - Harm-Jan Hazelhorst
 - Rob Meijer
 - Nick Spelt
-- Roj Vroemen
 - Jorijn Schrijvershof
 - Mitchell van Wijngaarden
