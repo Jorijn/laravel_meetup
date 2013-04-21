@@ -37,5 +37,4 @@ You have an extra bed to host a friendly french guy for one night ? Contact me :
 - Harm-Jan Hazelhorst
 - Rob Meijer
 - Nick Spelt
-- Jorijn Schrijvershof
 - Mitchell van Wijngaarden
